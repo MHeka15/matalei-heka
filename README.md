@@ -20,7 +20,7 @@ I enjoy working with messy data, finding meaningful patterns, and turning number
 
 📫 Email: [mmheka95@gmail.com](mailto:mmheka95@gmail.com)  
 💼 LinkedIn: [linkedin.com/in/matalei-heka](https://www.linkedin.com/in/matalei-heka/)  
-📍 Based in Hayward, CA (open to remote roles!)
+📍 Based in CA (open to remote roles!)
 
 ## Fun Fact
 
