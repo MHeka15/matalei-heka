@@ -1,4 +1,4 @@
-# Hi 👋, I'm Matalei Heka-Samaritano
+# Hi 👋, I'm Matalei
 
 ### 🧠 Curious mind, data enthusiast, and former educator turning numbers into stories.
 
